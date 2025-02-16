@@ -23,3 +23,6 @@
 
 ## 推荐视频
 - [中国痤疮诊疗指南：祛痘外用药保姆级教学](https://www.bilibili.com/video/BV1Ei4y1r7rX/)
+
+## 参考资料
+- [过氧苯甲酰到底是什么？](http://www.pumcderm.net/list/174/697.html)
