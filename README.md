@@ -25,6 +25,7 @@
 - [权威护肤｜详解【中国痤疮指南】](bilibili.com/video/BV1BT411B7tZ/)：我没细看，只扫了一眼
 - [祛痘药咱按着指南来，《中国痤疮治疗指南》痘痘外用药物解读，再也不用头疼网红药物分不清了](https://www.bilibili.com/video/BV1XY411K7fp)
 - [【硬核科普】红痘印┇痤疮后红斑┇18种治疗的文献总结](https://www.bilibili.com/video/BV1DW421A7xD)
+- [⚡7分钟 49+种美白方法大盘点⚡痘印色沉色斑淡化黑色素的通用总论知识](bilibili.com/video/BV1Lx421Q7f5/)
 
 ## 注意事项
 - 面部防晒（帽子，雨伞，防晒霜等），要晒就晒手臂，腿，胸，背等
