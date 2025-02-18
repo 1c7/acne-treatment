@@ -111,5 +111,10 @@
 多磺酸粘多糖乳膏 买了还没到货，对红痘印也有效果，打算和 **积雪苷霜软膏** 交替使用试一试，或者长期用一个，不行了就换另一个。  
 
 ## 皮肤相关视频创作者
+列表不全，我只是随手收集一下，排名随机。   
+
 - 皮科医生魏小博: [B站](https://space.bilibili.com/456404164/upload/video)
 - 叶小戳的护肤笔记: [B站](https://space.bilibili.com/1223664358/upload/video)
+- 人类面子工程队: [B站](https://space.bilibili.com/22043723/upload/video)
+- 冰寒哥: [B站](https://space.bilibili.com/37889997/upload/video)
+- 皮肤科的王医生: [B站](https://space.bilibili.com/4390920/upload/video)
